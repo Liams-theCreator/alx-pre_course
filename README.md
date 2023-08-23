@@ -1,1 +1,1 @@
-The firs and the last
+The first and the last
